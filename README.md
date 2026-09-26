@@ -1,2 +1,3 @@
 # Dr.-Piyush-Kumar-Patawari-Urologist-in-Siliguri
-Dr. Piyush Kumar Patawari is a urologist in Siliguri, West Bengal, providing professional care for various urological and urinary health conditions.
+Dr. Piyush Kumar Patawari is a urologist in Siliguri, West Bengal, providing professional care for various urological and urinary health conditions.Dr. Vivek Gaurav is a nephrologist in Siliguri providing specialized care for kidney and renal health. His nephrology practice focuses on the evaluation, diagnosis, and management of various kidney-related conditions, including chronic kidney disease, hypertension-related kidney problems, and other renal disorders. Patients looking for a nephrologist in Siliguri can explore Dr. Vivek Gaurav’s professional profile and learn more about available kidney care and nephrology services.
+
